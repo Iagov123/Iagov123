@@ -6,7 +6,7 @@ I cannot publish it here because of storage limitations, but you can find the fi
 # The christian BIBLE itself for my fellow religious pals and gals
 # Links for various cool and useful sites
 # Nice aplictions for you all
-# And various game!
+# And various games!
 Remember to respect eachother and to be happy, godspeed my fellow mateys
 
 Spread love everywhere you go. Let no one ever come to you without leaving happier. -Mother Teresa
