@@ -11,3 +11,5 @@ In this archive you will find
 Remember to respect eachother and to be happy, godspeed my fellow mateys
 
 Spread love everywhere you go. Let no one ever come to you without leaving happier. -Mother Teresa
+
+P.S: Im not religious, the bible is just 4 the funni
