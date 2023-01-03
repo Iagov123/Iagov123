@@ -2,7 +2,6 @@ Hello dear pirates and ROM entusiasts! I have encountered many types of files to
 I cannot publish it here because of storage limitations, but you can find the files on this link: ,
 # Roms for various emulators
 # Emulators from years ago
-# Diverse books to make you not illeterate
 # The christian BIBLE itself for my fellow religious pals and gals
 # Links for various cool and useful sites
 # Nice aplictions for you all
