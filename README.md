@@ -1,6 +1,5 @@
 Hello dear pirates and ROM entusiasts! I have encountered many types of files to expand your knowledge and engage in anti-copyright actions.
-In this archive you will find
-
+I cannot publish it here because of storage limitations, but you can find the files on this link: ,
 # Roms for various emulators
 # Emulators from years ago
 # Diverse books to make you not illeterate
