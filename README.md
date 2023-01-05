@@ -1,5 +1,6 @@
 Hello dear pirates and ROM entusiasts! I have encountered many types of files to expand your knowledge and engage in anti-copyright actions.
-I cannot publish it here because of storage limitations, but you can find the files on this link: ,
+I cannot publish it here because of storage limitations, but you can find the files on this link: https://terabox.com/s/1lgTZeCx55BAYGqqG8phRRQ, where you can see very nice things to yaal like:
+
 # Roms for various emulators
 # Emulators from years ago
 # The christian BIBLE itself for my fellow religious pals and gals
